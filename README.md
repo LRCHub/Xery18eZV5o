@@ -1,0 +1,81 @@
+# 香椎モイミ – ベルコメン
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+ようこそお姫様 Tonight 愛
+君と Na Na Na Party Time
+どうやらもう真夜中 Tonight 愛
+君と乾杯さ Ready Go
+華やかなライトが輝く
+有象無象ひしめく欲望
+煽ったグラス溶ける脳
+くだらない話で沸くフロア
+カルーア? テキーラ?
+何だって良い
+捧げただけ甘えてごらん?
+癖になるでしょこの感じ
+ほらもう抜け出せない
+Get ready! No! No!
+華と成る為
+NaNa 甘い罠でKnock down
+Imagine! No! No!
+頂きまで見たいの?
+絡まってんだYou & I 愛 Tight
+刻む鼓動
+Waiting Waiting for you now
+そうさ君がエース Game set
+仕組む翻弄
+Beating Beating Beating Heart
+雅に舞って今宵も NaNaNaNa
+ベルコメン
+「マジでSorry」 リピするJammy
+もう「だってだって」の
+正常に作動する心 いらねえし
+とうにBreaking されどFaking
+なあ Docking Dockingだ
+約束は君の想いが尽きるまで
+イミテーション?
+イリュージョン?
+何だって良い
+視線奪うことこそが全て
+指で触れて確かめてよ
+ほらもう止められない
+Embody! No! No!
+闇に紛れて
+NaNa 恋の舞台 Let's dance
+I got it! No! No!
+また秘密が欲しいの?
+なら待ってるねその愛 対価
+誘う訴求 Gimme Gimme Gimme Love
+長く甘いアフター
+"You're VIP."
+「好き」をセンド
+Cheating Cheating Cheating Her
+言葉に酔って今宵も NaNaNaNa
+ベルコメン
+Ooh, Tasty candy
+とめどなく甘美だ
+DaDa誰も知らない
+手放せぬ非現実な高揚感
+クラクラLady
+フワフワ Crazy
+もう定番の馴れ初めも鮮やかに
+求めるHold me
+大嫌いなLonely
+「寂しい」 渋滞
+殺した自我もう出てくるな
+Get ready! No! No!
+華となる為
+NaNa 甘い罠でKnock down
+Imagine! No! No!
+頂きまで見たいの?
+絡まってんだYou & I 愛 Tight
+刻む鼓動
+Waiting Waiting for you now
+そうさ君がエース Game set
+仕組む翻弄
+Beating Beating Beating Heart
+雅に舞って今宵も NaNaNaNa
+ベルコメン
+```
